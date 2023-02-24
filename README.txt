@@ -1,0 +1,1 @@
+since the university course is utter dogshit, here's me learning the exact same stuff but in 3 days instead of 3 months
