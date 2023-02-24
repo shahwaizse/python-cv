@@ -1,1 +1,2 @@
-since the university course is utter dogshit, here's me learning the exact same stuff but in 3 days instead of 3 months
+since the university course is utter dogshit, here's me learning the exact same stuff but in 3 days instead of 3 months,
+courtesy of freecodecamp and their amazing video https://www.youtube.com/watch?v=oXlwWbU8l2o&t
